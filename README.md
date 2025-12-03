@@ -1,1 +1,1 @@
-rid #190788
+(https://michelkosvoski.github.io/rid-190788/)
